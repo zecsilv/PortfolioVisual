@@ -1,2 +1,5 @@
-# ClinicaDentaria
-website - www.clinicadrfernandopaiva.pt
+# Portfolio Visual 
+
+@ José Silva
+
+All rigths © Reserved
